@@ -25,6 +25,7 @@ https://github.com/AjayToliya/Just-for-Teches/assets/149996384/42c2a081-8d9a-46f
 ![Screenshot_20240329_101034](https://github.com/AjayToliya/Just-for-Teches/assets/149996384/3d7b6843-c2d0-4318-94fe-293221dadf6e)
 ![Screenshot_20240329_101028](https://github.com/AjayToliya/Just-for-Teches/assets/149996384/27717e20-d98d-417b-b8c5-50d41c865625)
 ![Screenshot_20240329_101015](https://github.com/AjayToliya/Just-for-Teches/assets/149996384/0812d2e4-cb2b-45fa-a434-3d5b1ee3cd66)
-![Screenshot_20240329_101102](https://github.com/AjayToliya/Just-for-Tec![Screenshot_20240329_101644](https://github.com/AjayToliya/Just-for-Teches/assets/149996384/a61fca29-00f9-4efa-ad99-3c0039dc6e45)
-hes/assets/149996384/ee4f64a6-686f-47e1-b2d4-4295dad22d14)
+![Screenshot_20240329_101102](https://github.com/AjayToliya/Just-for-Tec!hes/assets/149996384/ee4f64a6-686f-47e1-b2d4-4295dad22d14)
+[Screenshot_20240329_101644](https://github.com/AjayToliya/Just-for-Teches/assets/149996384/a61fca29-00f9-4efa-ad99-3c0039dc6e45)
+
 
